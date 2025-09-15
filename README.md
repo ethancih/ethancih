@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding, drawing, and designing!
 - 🌱 I’m currently learning Javascript and Procreate.
 - 💞️ I’m currently not looking to collaborate on anything.
-- 📫 How to reach me: 3than4ever@gmai
+- 📫 How to reach me: 3than4ever@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: ...
 
